@@ -1,0 +1,1 @@
+https://b0r0v1c-rs.github.io/rsschool-cv/cv
